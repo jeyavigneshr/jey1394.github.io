@@ -1,2 +1,0 @@
-# jey.github.io
-Portfolio
